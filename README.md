@@ -56,6 +56,11 @@ This repository provides a collection of resources to help you learn English, wh
 - **YouGlish** (Find videos of people saying specific words in sentences)  
   [Visit Website](https://youglish.com/)
 
+
+
+![mainBoard](https://github.com/user-attachments/assets/3da44faf-9391-4298-9eb5-c35c91eec865)
+
+
 ---
 
 ### Happy Learning!
