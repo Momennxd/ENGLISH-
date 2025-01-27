@@ -17,6 +17,8 @@ This repository provides a collection of resources to help you learn English, wh
 - **How to Learn English in 12 Easy Steps**  
   [Watch Now](https://www.youtube.com/watch?v=SsfZO7jP7Is)
 
+- **How to Learn English vocabs with hadar**  
+  [Watch Now](https://youtu.be/8efar0nSZ3Q?si=T9H6laIVm6GWP1Pr)
 ---
 
 ## 2. Learning English Through English
